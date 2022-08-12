@@ -1,0 +1,1 @@
+Hello, I'm Mason, I'm interested in cryptocurrencies, trading and payment systems, I'm looking for people with whom I can exchange experiences and talk on modern topics, I'm always in touch in my telegram account @mason_payment is open for communication. See you
